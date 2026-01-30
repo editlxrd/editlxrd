@@ -15,7 +15,7 @@ fuck hoes and sniff coke?
 
 
 <p align="center">
-<a href="https://www.instagram.com/panettonemy/"><img alt="Instagram" src="https://img.shields.io/badge/IG-Instagram-red"></a>
+<a href="https://www.instagram.com/davideee_my/"><img alt="Instagram" src="https://img.shields.io/badge/IG-Instagram-red"></a>
 <a href="https://discord.gg/7bjFNznH4a"><img alt="Discord" src="https://img.shields.io/badge/DC-Discord-blue"></a>
 </p>
 
